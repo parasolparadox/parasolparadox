@@ -7,10 +7,11 @@
 
 
 <div align="center">
-  <pre>
-iwc, c+h freely.sign strawpage
   
-</pre>
+iwc, c+h freely.sign strawpage<br/>
+
+…⁠ᘛ⁠⁐̤⁠ᕐ⁠ᐷ
+
 
   
 <div align="center">
