@@ -1,16 +1,16 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**parasolparadox/parasolparadox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+  ![](https://komarev.com/ghpvc/?username=papas-pancakeria&label=ejections&base=1229&style=round-square&color=FFAC1C)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="680" height="680" alt="RODAMRIX_ CÓMICS" src="https://github.com/user-attachments/assets/4f8a5026-f88e-4e8d-b8b3-f2bed6c1b3ee" />
+
+
+<div align="center">
+  
+
+Usually at flower shop or at docks with friends (love yall btw)
+
+<div align="center">
+
+iwc and c+h freely, sign my strawpage
