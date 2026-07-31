@@ -6,6 +6,8 @@
   <img width="600" height="13" alt="Untitled778_20260801030324" src="https://github.com/user-attachments/assets/2b69bd5c-80eb-4b85-9c36-e4d0a05aa412" />
 
 $\texttt{\color{#fab7d6}teal}$ $\texttt{\color{#fab7d6}from}$ $\texttt{\color{#fef07d}rodamrix}$ $\texttt{\color{#fef07d}of}$ $\texttt{\color{#87bbfd}ponytown}$ !!!
+
+c*h freely, w2i!
   <img width="1000" height="13" alt="Untitled778_20260801030324" src="https://github.com/user-attachments/assets/2b69bd5c-80eb-4b85-9c36-e4d0a05aa412" />
   
   <div align="center">
