@@ -12,7 +12,7 @@ $\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#
 <br>
 <div align="center">
   
-[strawpage](https://athite.straw.page) 
+[carrd](https://parasolparadox.carrd.co/)
 <img width="20" height="20" alt="IMG_5315" src="https://github.com/user-attachments/assets/4762d641-9bf2-4ee2-867b-44873c0ab2a7" />
 
 [pronouns](https://prns.cc/nmgso) <img width="20" height="20" alt="IMG_5316" src="https://github.com/user-attachments/assets/eb4f9c37-1b69-47a0-a396-5d6e010ba793" />
