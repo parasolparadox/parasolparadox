@@ -1,12 +1,12 @@
 <div align="center">
 
-<img width="796" height="70" alt="IMG_5303" src="https://github.com/user-attachments/assets/feb20bc9-efe6-4153-b9a8-a30e4804b8e8" />
 
  ![](https://komarev.com/ghpvc/?username=parasolparadox&label=flies&base=1229&style=round-square&color=3AB2E5)
   
 $\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#6FC541}w2i}$ $\texttt{\color{#87bbfd}iwcuf}$ ⋆✿
 
-<img width="796" height="772" alt="IMG_5304" src="https://github.com/user-attachments/assets/9d5809f3-362d-49d5-9551-1deda2251797" />
+<img width="796" height="772" alt="IMG_5356" src="https://github.com/user-attachments/assets/efa34522-df00-4025-84df-0150b4581a3d" />
+
 
 <img width="796" height="70" alt="IMG_5303" src="https://github.com/user-attachments/assets/feb20bc9-efe6-4153-b9a8-a30e4804b8e8" />
 <br>
@@ -32,6 +32,7 @@ $\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#
 <img width="99" height="56" alt="IMG_5353" src="https://github.com/user-attachments/assets/6c41c009-1aa4-4481-b61e-b101f1acd12c" />
 <img width="99" height="56" alt="IMG_5351" src="https://github.com/user-attachments/assets/749f3475-59fc-4187-aabe-8ca5d45ee2ba" />
 <img width="99" height="56" alt="IMG_5352" src="https://github.com/user-attachments/assets/9c054099-8106-4e61-9ab7-fe6692c8ebbe" />
+<img width="99" height="56" alt="IMG_5357" src="https://github.com/user-attachments/assets/5aa8ac0a-368c-4adb-aca7-302cc9587656" />
 
 
   
