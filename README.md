@@ -1,23 +1,25 @@
 <div align="center">
 
 
- ![](https://komarev.com/ghpvc/?username=parasolparadox&label=flies&base=1229&style=round-square&color=3AB2E5)
+ ![](https://komarev.com/ghpvc/?username=parasolparadox&label=respawns&base=1229&style=round-square&color=3AB2E5)
   
-$\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#6FC541}w2i}$ $\texttt{\color{#87bbfd}iwcuf}$ ⋆✿
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&duration=1700&pause=500&color=FFFFFF&center=true&vCenter=true&width=435&lines=I+love+%E2%96%88ing%2C+%E2%96%88ing%2C+%E2%96%88%E2%96%88ing+and+%E2%96%88ing;A+%E2%96%88ed+ins%E2%96%88+%E2%96%88%E2%96%88song+;With+words+that+were+%E2%96%88ed+to+%E2%96%88%E2%96%88%E2%96%88th+by+%E2%96%88%E2%96%88+;Those+%E2%96%88%E2%96%88ed+%E2%96%88sses+are%E2%96%88%E2%96%88ing+;All+%E2%96%88ad+and+%E2%96%88%E2%96%88ed+in+a+cesspool+of+%E2%96%88%E2%96%88;-except+for+%E2%96%88%E2%96%88.++I+have+to+tell+you+%E2%96%88%E2%96%88+;and+%E2%96%88%E2%96%88+and+%E2%96%88%E2%96%88+.+Even+if+I+%E2%96%88%2C+even+if+I+%E2%96%88%E2%96%88%2C+;I+can%E2%80%99t+%E2%96%88%E2%96%88+like+this%2C+so.;This+is+my+blacked-out+love+letter+to+the+world." alt="Typing SVG" /></a>
 
-<img width="796" height="772" alt="IMG_5356" src="https://github.com/user-attachments/assets/efa34522-df00-4025-84df-0150b4581a3d" />
+<img width="563" height="443" alt="IMG_5437" src="https://github.com/user-attachments/assets/8f469958-01f2-4ec2-a462-6da61a3b9ac5" />
+
+<img width="500" height="120" alt="IMG_5433" src="https://github.com/user-attachments/assets/69b751a1-4f3e-4be6-b050-34b6e98e256f" />
 
 
-<img width="796" height="70" alt="IMG_5303" src="https://github.com/user-attachments/assets/feb20bc9-efe6-4153-b9a8-a30e4804b8e8" />
+
 <br>
 <div align="center">
   
 [carrd](https://parasolparadox.carrd.co/)
-<img width="25" height="25" alt="IMG_5446" src="https://github.com/user-attachments/assets/e3d5b48c-ebea-412e-b7ec-3e08016cd476" />
+<img width="20" height="20" alt="IMG_5446" src="https://github.com/user-attachments/assets/e3d5b48c-ebea-412e-b7ec-3e08016cd476" />
 
-[pronouns](https://pronouns.cc/@parasolparadox)<img width="25" height="25" alt="IMG_5445" src="https://github.com/user-attachments/assets/eafa3662-5d37-4ced-9f4a-c9f0c2feee61" />
+[pronouns](https://pronouns.cc/@parasolparadox)<img width="20" height="20" alt="IMG_5445" src="https://github.com/user-attachments/assets/eafa3662-5d37-4ced-9f4a-c9f0c2feee61" />
 
-[atabook](https://watching.atabook.org/)<img width="25" height="25" alt="IMG_5444" src="https://github.com/user-attachments/assets/982a55b4-f04d-4f05-9c01-834e3c7e130f" />
+[atabook](https://watching.atabook.org/)<img width="20" height="20" alt="IMG_5444" src="https://github.com/user-attachments/assets/982a55b4-f04d-4f05-9c01-834e3c7e130f" />
 
 
 
@@ -38,6 +40,8 @@ $\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#
 <img width="99" height="56" alt="IMG_5352" src="https://github.com/user-attachments/assets/9c054099-8106-4e61-9ab7-fe6692c8ebbe" />
 <img width="99" height="56" alt="IMG_5357" src="https://github.com/user-attachments/assets/5aa8ac0a-368c-4adb-aca7-302cc9587656" />
 <img width="99" height="56" alt="IMG_5359" src="https://github.com/user-attachments/assets/a61596c1-7b65-4302-849b-ede369016504" />
+<img width="99" height="56" alt="IMG_5440" src="https://github.com/user-attachments/assets/f6322df6-2066-4bbc-92c5-85c6b0e0aa65" />
+<img width="99" height="56" alt="IMG_5431" src="https://github.com/user-attachments/assets/929120da-f16e-4675-9dfe-0807197497c0" />
 
 
   
