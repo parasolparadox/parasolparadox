@@ -13,11 +13,12 @@ $\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#
 <div align="center">
   
 [carrd](https://parasolparadox.carrd.co/)
-<img width="20" height="20" alt="IMG_5315" src="https://github.com/user-attachments/assets/4762d641-9bf2-4ee2-867b-44873c0ab2a7" />
+<img width="25" height="25" alt="IMG_5446" src="https://github.com/user-attachments/assets/e3d5b48c-ebea-412e-b7ec-3e08016cd476" />
 
-[pronouns](https://pronouns.cc/@parasolparadox)<img width="20" height="20" alt="IMG_5316" src="https://github.com/user-attachments/assets/eb4f9c37-1b69-47a0-a396-5d6e010ba793" />
+[pronouns](https://pronouns.cc/@parasolparadox)<img width="25" height="25" alt="IMG_5445" src="https://github.com/user-attachments/assets/eafa3662-5d37-4ced-9f4a-c9f0c2feee61" />
 
-[atabook](https://watching.atabook.org/)<img width="20" height="20" alt="IMG_5360" src="https://github.com/user-attachments/assets/e03529b1-65e2-4667-bc60-1467d7ea9a75" />
+[atabook](https://watching.atabook.org/)<img width="25" height="25" alt="IMG_5444" src="https://github.com/user-attachments/assets/982a55b4-f04d-4f05-9c01-834e3c7e130f" />
+
 
 
 <div align="center">
