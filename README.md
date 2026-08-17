@@ -14,6 +14,8 @@
 <br>
   <div align="center">
 
+[strawpage](https://athite.straw.page)
+
 [pronouns](https://pronouns.cc/@parasolparadox)<img width="20" height="20" alt="IMG_5445" src="https://github.com/user-attachments/assets/eafa3662-5d37-4ced-9f4a-c9f0c2feee61" /> 
 
 [atabook](https://watching.atabook.org/)<img width="20" height="20" alt="IMG_5444" src="https://github.com/user-attachments/assets/982a55b4-f04d-4f05-9c01-834e3c7e130f" />
