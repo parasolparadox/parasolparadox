@@ -5,7 +5,9 @@
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&duration=1700&pause=500&color=FFFFFF&center=true&vCenter=true&width=435&lines=I+love+%E2%96%88ing%2C+%E2%96%88ing%2C+%E2%96%88%E2%96%88ing+and+%E2%96%88ing;A+%E2%96%88ed+ins%E2%96%88+%E2%96%88%E2%96%88song+;With+words+that+were+%E2%96%88ed+to+%E2%96%88%E2%96%88%E2%96%88th+by+%E2%96%88%E2%96%88+;Those+%E2%96%88%E2%96%88ed+%E2%96%88sses+are%E2%96%88%E2%96%88ing+;All+%E2%96%88ad+and+%E2%96%88%E2%96%88ed+in+a+cesspool+of+%E2%96%88%E2%96%88;-except+for+%E2%96%88%E2%96%88.++I+have+to+tell+you+%E2%96%88%E2%96%88+;and+%E2%96%88%E2%96%88+and+%E2%96%88%E2%96%88+.+Even+if+I+%E2%96%88%2C+even+if+I+%E2%96%88%E2%96%88%2C+;I+can%E2%80%99t+%E2%96%88%E2%96%88+like+this%2C+so.;This+is+my+blacked-out+love+letter+to+the+world." alt="Typing SVG" /></a>
 
-<img width="735" height="878" alt="medbay background poster feel free to print it out" src="https://github.com/user-attachments/assets/d2d82ab4-9839-46a1-8f73-9ba1df96bbd9" />
+<img width="500" height="500" alt="IMG_5601" src="https://github.com/user-attachments/assets/d5ae4706-636a-43a3-928a-180897c70563" />
+
+
 
 
 <img width="500" height="120" alt="IMG_5433" src="https://github.com/user-attachments/assets/69b751a1-4f3e-4be6-b050-34b6e98e256f" />
