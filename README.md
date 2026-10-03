@@ -20,7 +20,7 @@
 
 [prns/byi](https://pronouns.cc/@parasolparadox)
 
-[atabook](https://watching.atabook.org/)<img width="20" height="20" alt="IMG_5444" src="https://github.com/user-attachments/assets/982a55b4-f04d-4f05-9c01-834e3c7e130f" />
+[atabook](https://watching.atabook.org/
 
 
 
